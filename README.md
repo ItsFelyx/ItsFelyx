@@ -12,3 +12,4 @@
 ──────✦
 # SPECIAL MENTIONS!!!!
 ## YUZU !!! ٩(ˊᗜˋ*)و ♡
+#### I'm literally SO grateful we are friends bro, you're the realest and longest friend I ever had!!! 3 YEARS!!! I CANT WAIT TO MEET YOU IRL. YOU ARE LITERALLY LIKE MY SIBLING AND ILYSM BRO I CAN'T BELIEVE TIME FLIES SO FAST. I could write a whoooooole book about how swag you are!!!! (you also stink btw :3) JUST YOU KNOW I'lL ALWAYS LOVE YOU FOREVER YOU'RE LITERALLY SO F- woa woa not there buckaroo i almost swore D: anyways ehm cough cough YOU'RE LITERALLY SOOOOOOO AMAZING I  DON'T EVEN HAVE WORDS YOU POOPFACE.
