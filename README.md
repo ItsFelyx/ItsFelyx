@@ -12,12 +12,12 @@
 #### Whenever I feel uncomfortable, I might go silent! 
 #### I don't like ships no matter what, they never rlly interested me.
 ──────✦
-# DNI !!!
-#### weird people!!! 
-#### problematic people!!!
-#### PDF!!! EWWW
-#### do i really have to mention all? LITERALLY ALL WEIRD/BAD STUFF BRO
-#### https://basic-dni.crd.co/
+## DNI !!!
+##### weird people!!! 
+##### problematic people!!!
+##### PDF!!! EWWW
+##### do i really have to mention all? LITERALLY ALL WEIRD/BAD STUFF BRO
+##### https://basic-dni.crd.co/
 ──────✦
 # SPECIAL MENTIONS!!!!
 ## YUZU !!! ٩(ˊᗜˋ*)و ♡ 
