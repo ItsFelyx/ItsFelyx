@@ -20,7 +20,7 @@
 ##### https://basic-dni.crd.co/
 ## THIN ICE!!
 ##### speaking french to me unless you're a friend. it makes me rlly uncomfortable unless i know you
-##### wheelchair jokes. unless i know you, just don't. please.
+##### wheelchair jokes. just don't. (unless I know you/we are friends)
 ──────✦
 # SPECIAL MENTIONS!!!!
 ## YUZU !!! ٩(ˊᗜˋ*)و ♡ 
