@@ -10,5 +10,5 @@
 #### I  rarely block people forever, but if you're a weirdo, I will probably ignore you.
 #### Whenever I feel uncomfortable, I might go silent! 
 ──────✦
-### SPECIAL MENTIONS!!!!
-![API](https://github-colored-text-fn3z.vercel.app/api/index.js?text=YOURTEXTHERE&color=HEXCOLOR&width=TEXTWIDTH&fontSize=FONTSIZE&height=HEIGHT&x=X&y=Y)
+# SPECIAL MENTIONS!!!!
+
