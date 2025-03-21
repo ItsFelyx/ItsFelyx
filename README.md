@@ -10,6 +10,7 @@
 #### I'm very affective around people I consider cool/my friends!!! But don't get it wrong; It's always platonic, I'm aromantic!
 #### I  rarely block people forever, but if you're a weirdo, I will probably ignore you.
 #### Whenever I feel uncomfortable, I might go silent! 
+#### I don't like ships no matter what, they never rlly interested me.
 ──────✦
 # SPECIAL MENTIONS!!!!
 ## YUZU !!! ٩(ˊᗜˋ*)و ♡ 
