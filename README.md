@@ -18,6 +18,9 @@
 ##### PDF!!! EWWW
 ##### do i really have to mention all? LITERALLY ALL WEIRD/BAD STUFF BRO
 ##### https://basic-dni.crd.co/
+## THIN ICE!!
+##### speaking french to me unless you're a friend. it makes me rlly uncomfortable unless i know you
+##### wheelchair jokes. unless i know you, just don't. please.
 ──────✦
 # SPECIAL MENTIONS!!!!
 ## YUZU !!! ٩(ˊᗜˋ*)و ♡ 
