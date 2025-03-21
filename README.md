@@ -21,6 +21,7 @@
 ## THIN ICE!!
 ##### speaking french to me unless you're a friend. it makes me rlly uncomfortable unless i know you
 ##### wheelchair jokes. just don't. (unless I know you/we are friends)
+##### people under 14/15. I feel much more comfortable with people around my age
 ──────✦
 # SPECIAL MENTIONS!!!!
 ## YUZU !!! ٩(ˊᗜˋ*)و ♡ 
