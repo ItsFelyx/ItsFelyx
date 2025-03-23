@@ -10,7 +10,6 @@
 #### I'm very affective and like joyous around people I consider cool/my friends!!! But don't get it wrong; I'm aromantic! It's platonic.
 #### I  rarely block people forever, but if you're a weirdo, I will probably ignore you.
 #### Whenever I feel uncomfortable, I might go silent! 
-#### I don't like ships no matter what, they never rlly interested me.
 ──────✦
 ## DNI !!!
 ##### weird people!!! 
@@ -20,7 +19,6 @@
 ##### https://basic-dni.crd.co/
 ## THIN ICE!!
 ##### speaking french to me unless you're a friend. it makes me rlly uncomfortable unless i know you
-##### wheelchair jokes. just don't. (unless I know you/we are friends)
 ##### people under 14/15. I feel much more comfortable with people around my age
 ──────✦
 # SPECIAL MENTIONS!!!!
