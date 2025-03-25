@@ -22,7 +22,7 @@
 ##### speaking french to me unless you're a friend. it makes me rlly uncomfortable unless i know you
 ##### people under 14/15. I feel much more comfortable with people around my age
 ──────✦
-# SPECIAL MENTIONS!!!!
+# SPECIAL MENTIONS!!!! (there's no order, and if i forgot anybody/if you don't wanna be on the list plz tell me!!)
 ## YUZU/PIPITA !!! ٩(ˊᗜˋ*)و ♡ 
 #### I'm literally SO grateful we are friends bro, you're the realest and longest friend I ever had!!! 3 YEARS!!! I CANT WAIT TO MEET YOU IRL. YOU ARE LITERALLY LIKE MY SIBLING AND ILYSM BRO I CAN'T BELIEVE TIME FLIES SO FAST. I could write a whoooooole book about how swag you are!!!! (you also stink btw :3) JUST YOU KNOW I'lL ALWAYS LOVE YOU FOREVER YOU'RE LITERALLY SO F- woa woa not there buckaroo i almost swore D: anyways ehm cough cough YOU'RE LITERALLY SOOOOOOO AMAZING I  DON'T EVEN HAVE WORDS YOU POOPFACE, ISTG I WILL SEND JACK TO YOUR PLACE AND HE'LL TELL YOU HOW *MUCH* OF AN AMAZING PERSON YOU ARE. WE WERE MEANT TO BE FRIENDS, I JUST KNOW IT. EVER SINCE WE MET ON REC ROOM LIFE HAS BEEN SO JOYOUS NO MATTER WHAT HAPPENS!!!! ISTG I WISH I COULD GRAB YOU AND HUG YOU AND SHAKE YOU LIKE A SNOWFLAKE BALL. PLS PLS PLS TAKE CARE OF YOURSELF YOU'RE LITERALLY SO COOL OH MY GOD EXPLODES IM GONNA ATTACK YOU GRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRRR!!!! ISTG ILL SEND YOU THE SHRIMP GUY OR OR JACK OR UHH THE SODA GUY OR THE ROACH GUY ISTG THEY WILL TELL YOU THE SAME WE ARE MEANT TO BE FRIENDS ISTG EVERYTHING'S BEEN SO MUCH BETTER SINCE WE'VE BEEN FRIENDS ILYSMMMMMMMM
 ## BEN/CARL !!!! Σ(°ロ°)
