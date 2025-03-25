@@ -10,6 +10,7 @@
 #### I'm very affective and like joyous around people I consider cool/my friends!!! But don't get it wrong; I'm aromantic! It's platonic.
 #### I  rarely block people forever, but if you're a weirdo, I will probably ignore you.
 #### Whenever I feel uncomfortable, I might go silent! 
+#### I also don't accept random friend requests
 ──────✦
 ## DNI !!!
 ##### weird people!!! 
