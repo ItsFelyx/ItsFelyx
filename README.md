@@ -13,7 +13,6 @@
 #### I also don't accept random friend requests
 ──────✦
 ## DNI !!!
-##### weird people!!! 
 ##### problematic people!!!
 ##### PDF!!! EWWW
 ##### do i really have to mention all? LITERALLY ALL WEIRD/BAD STUFF BRO
