@@ -1,7 +1,7 @@
 # HIHI HELLO!!
 ──────✦
 ## **Name's Felyyx!! I'm eighteen years old and french.**
-### You can mostly find me at the Homestuck area near spawn, around the SWAG BENCH ( ͡° ͜ʖ ͡°)
+### You can mostly find me at the Homestuck area near spawn!!! 
 ### I don't mind at all whatever pronouns or nicknames you use on me! I heavily enjoy he/him, though.
 ### Please do not involve me into drama.
 ### You can always C+H!!
