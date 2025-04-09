@@ -30,6 +30,8 @@
 #### HIIIHIII idk if you read those but  you're literally SO NICE!!! I'm really glad we met and became friends so quickly :] It's insane that we share so many interests!!! OUR GROUP IS SO SILLY GEHEHEH I HOPE YOU TAKE CARE OF YOURSELF AND DON'T FORGET TO EAT AND DRINK PLENTY!!!! ALso did I told you that your ponies are so cool? BECAUSE THEY ARE!!!! Just so you know, me and Ben and Yuzu will always be here for you bro!!!!! I HOPE YOU'LL HAVE THE SWAGGIEST DAY EVER GEHEHHEHEEH!!!!!!!!!! you're forever invited to the swag bench, alongside with the cool bench and the unnamed bench!!!!!!!!!!!!!!!!!!!!!!! B)
 ## TOASTER !!!!! ♡♡♡
 #### I KNOW YOU'LL NEVER SEE THIS CUZ YOU DONT PLAY PONYTOWN BUT BRO THANK YOU SO MUCH FOR BEING SO CARING,  YOU REALLY HELPED ME AND (mostly) YUZU WITH THAT ONE SAD SITUATION, SO THANK YOU SO MUCH TOASTADA YOU'RE SO SILLY
+## VILOT !!!!!!!!!!!!!!
+#### HIIII, HIIII, ТЫ ТАКОЙ ГЛУПЫЙ, ГЕХЕХЕ (извини, если это плохо, я использую переводчик Google, потому что я ничего не говорю по-русски) ТЫ ТАКОЙ КРУТОЙ, Я ТАК ЛЮБЛЮ ТВОЕ ИСКУССТВО, И С ТОБОЙ ТАК ИНТЕРЕСНО ОБЩАТЬСЯ!! ВАШ OC ТОЖЕ НАСТОЛЬКО УНИКАЛЕН ДАВАЙ КОГДА-НИБУДЬ ПОЕДИМ КРАБОВЫЙ СУП??? ХЕХЕХЕХЕ 
 ## LEO/JAKE !!!!! <3333
 #### HIHIHIIHIII IDK IF YOU'LL SEE THIS BUT YOU'RE SOOOO NICE AND SWAG I WAS SURPRISED THE FIRST TIME I MET YOU D: YOURE LITERALLY THE " :3 " BUG!!!  AAA YOU'LL SOON HIT 10000 SUBSCRIBERS CONGRATULATIONS BROOO YOU DESERVE MOREEE ,, I'm so sad Ponytown banned you permanently I hope they will unban you :(((( YOU'RE FOREVER INVITED TO THE SWAG BENCH!!! B) UGHHH PONYTOWN IS SO POOPIE FOR BANNING YOU ISTG
 ## KEITHIAN !!! ᕙ(`▿´)ᕗ
