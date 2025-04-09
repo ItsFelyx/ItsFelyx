@@ -13,6 +13,7 @@
 #### I also don't accept random friend requests
 ──────✦
 ##### https://basic-dni.crd.co/
+
 ## THIN ICE!!
 #### Why would I say anything? A ninja never reveals his weaknesses 😈
 ──────✦
