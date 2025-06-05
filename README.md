@@ -1,6 +1,6 @@
 # HIHI HELLO!! ( ͡° ͜ʖ ͡°)
 ──────✦
-## **Name's Felyyx!! I'm eighteen years old and french.**
+## **Name's Felyyx!! I'm nineteen years old and french.**
 ### You can mostly find me at the Homestuck area near spawn!!! 
 ### I don't mind at all whatever pronouns or nicknames you use on me! I heavily enjoy he/him, though.
 ### Please do not involve me into drama.
